@@ -19,6 +19,8 @@
 - gidropony
 - rory in early 20s
 - heart attack man
+- bis
+- ESPRIT 空想
 
 ## fandoms:
 - athf (+-)
@@ -40,5 +42,8 @@
 - battle cats (+-)
 - bear nuts (+-)
 - smilling friends
+- dream emulator
+
+
 
 uh well thats all byebye :-o
