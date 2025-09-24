@@ -21,6 +21,8 @@
 - heart attack man
 - bis
 - ESPRIT 空想
+- temporex
+- they might be giants
 
 ## fandoms:
 - athf (+-)
@@ -43,6 +45,7 @@
 - bear nuts (+-)
 - smilling friends
 - dream emulator
+- creatures of sonaria (but now i hate this game after 3 years of playing)
 
 
 
