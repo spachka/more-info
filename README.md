@@ -47,6 +47,4 @@
 - dream emulator
 - creatures of sonaria (but now i hate this game after 3 years of playing)
 
-
-
-uh well thats all byebye :-o
+im done
