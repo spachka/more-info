@@ -23,6 +23,7 @@
 - ESPRIT 空想
 - temporex
 - they might be giants
+- type o negative
 
 ## fandoms:
 - athf (+-)
