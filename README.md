@@ -5,6 +5,7 @@
    - negaren
    - renard
    - kitcaliber
+   - bandetto
 - alex g
 - oingo boingo
 - machine girl
@@ -24,10 +25,12 @@
 - temporex
 - they might be giants
 - type o negative
+- crystal castles
 
 ## fandoms:
 - athf (+-)
 - house m. d. (+-)
+- big bang theory (+-)
 - dick figures
 - sewh
 - hylics
@@ -46,6 +49,9 @@
 - bear nuts (+-)
 - smilling friends
 - dream emulator
-- creatures of sonaria (but now i hate this game after 3 years of playing)
+- creatures of sonaria <i>(but now i hate this game after 3 years of playing)</i><br>
+- starters
+- TBOI (my fav game!!!)
+- pony.mov
 
 im done
