@@ -33,7 +33,7 @@
 - big bang theory (+-)
 - dick figures
 - sewh
-- minecraft <a>(we are <b>NOT</b> talking about smps okay? 🥺)</a>
+- minecraft <a></a>
 - hylics
 - off the game
 - moral orel
